@@ -16,7 +16,7 @@
 [![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=Quincin2000)](https://github.com/anuraghazra/github-readme-stats)
 
 ## 💬How To Reach Us:
-✔️**E-Mail:** **91pixelsusa@gmail.com**
+✔️**E-Mail:** **planetqradio@yahoo.com**
 
 
 ## 🎡My GitHub Stats:
